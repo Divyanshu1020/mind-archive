@@ -49,20 +49,6 @@ He made it sound so reasonable. So fair.
 
 Then, the room snapped back to normal. The demon was gone. The door was still locked.
 
-"You humans accept the 'Terms and Conditions' of your apps without reading them," Akhraeth whispered.
-
-### **The Morning After**
-
-He felt… incredible. The medicine bottle was empty, yet his head was clear.
-
-The cash he had frantically withdrawn from the ATM last night was gone from the table.
-
-*It was a dream,* he thought. *It had to be.*
-
-Then, he heard a scream from the apartment next door. Then a crash of a car outside. His phone buzzed. A news alert: *High-profile lawyer found dead in freak accident. Judge under investigation for sudden collapse.*
-
-Arjun felt a surge of triumph, but then his phone vibrated again. A text from an unknown number:
-
 
 ## **Chapter 2: The Fine Print of Justice**
 
